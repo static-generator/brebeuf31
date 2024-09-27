@@ -1,4 +1,6 @@
 # **about me !!**
 
 ---
-![image](https://play.google.com/store/apps/details?id=com.miHoYo.GenshinImpact&hl=en_US)
+ **hi !!!**
+![image](https://i.pinimg.com/236x/ba/7e/72/ba7e7210dc292f623affdf32ff93c228.jpg)
+![image](https://i.ytimg.com/vi/NpqpFILMdO8/maxresdefault.jpg)
