@@ -1,5 +1,5 @@
 # **about me !!**
-> *CN#31 ; 9-Brebeuf*
+
 ---
 ==interest==
 1. Geshin Impact
