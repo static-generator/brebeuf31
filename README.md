@@ -1,7 +1,4 @@
 # **about me !!**
 
 ---
-**interest**
-1. Geshin Impact
-2. Arts and Crafts
-3. Writing
+![image](https://play.google.com/store/apps/details?id=com.miHoYo.GenshinImpact&hl=en_US)
