@@ -1,7 +1,8 @@
-# **my interest :cat: !!**
+# **about me !!**
 > *CN#31 ; 9-Brebeuf*
 ---
 ==interest==
 1. Geshin Impact
-2. Arts and Crafts
-3. Writing
+2. 
+3. Arts and Crafts
+4. Writing
