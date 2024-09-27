@@ -1,8 +1,7 @@
 # **about me !!**
 
 ---
-==interest==
+**interest
 1. Geshin Impact
-2. 
-3. Arts and Crafts
-4. Writing
+2. Arts and Crafts
+3. Writing
